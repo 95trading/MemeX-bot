@@ -1,4 +1,5 @@
 # 🕔🪂 MemeX Airdrop Auto Bot v1.0
+![Alt text](![image](https://github.com/user-attachments/assets/22ed0399-8d63-48ee-905a-cec5773e7b18))
 
 🔥 **$MEMEX Airdrop** - Ends in 2 Weeks (Free BOT)
 
